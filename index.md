@@ -6,7 +6,7 @@ A street performance car does not need to be the most powerful vehicle in town t
 
 The first step is deciding what “balanced” means for the individual car. A daily-driven vehicle needs different characteristics from a weekend drift car or a track machine. Public roads contain potholes, uneven pavement, traffic, weather changes, and long periods of low-speed driving. A modification that works perfectly at a circuit may not make sense on the street.
 
-The <a href="https://alabamaracingscene.net/nissan-240sx-s13-specs-and-feature/)">Nissan 240SX S13</a> is a good example. Its rear-wheel-drive layout makes it attractive to enthusiasts, but age is now an important consideration. Many S13 examples have been modified several times during their lives, which means buyers and owners should pay close attention to the condition of the chassis and drivetrain.
+The <a href="https://alabamaracingscene.net/nissan-240sx-s13-specs-and-feature/">Nissan 240SX S13</a> is a good example. Its rear-wheel-drive layout makes it attractive to enthusiasts, but age is now an important consideration. Many S13 examples have been modified several times during their lives, which means buyers and owners should pay close attention to the condition of the chassis and drivetrain.
 
 A sensible restoration can therefore be considered part of a performance build. Replacing worn bushings, repairing cooling problems, servicing the brakes, and correcting suspension issues can make a larger difference than adding another engine modification.
 
